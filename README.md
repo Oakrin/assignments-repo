@@ -1,2 +1,2 @@
 # testing_repo
-just doing some assignments lol, not expecting this to be all that important
+just doing some assignments lol, disregard if you're not like, my professor
